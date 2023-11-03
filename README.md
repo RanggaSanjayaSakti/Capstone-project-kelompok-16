@@ -10,7 +10,8 @@
 ![image](https://github.com/RanggaSanjayaSakti/Capstone-project-kelompok-16/assets/122283752/2749b6b0-0050-40ec-8174-0ef3e5f4b23b)
 
 # Kelas
--
+![image](https://github.com/RanggaSanjayaSakti/Capstone-project-kelompok-16/assets/122283752/2ccc63df-f4ca-4e21-a032-b7b784dcb660)
+
 
 
 
